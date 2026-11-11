@@ -1,3 +1,0 @@
-# Joke #21
-
-I'm on a seafood diet. I see food and I eat it.

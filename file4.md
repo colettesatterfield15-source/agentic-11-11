@@ -1,3 +1,0 @@
-# Joke #4
-
-I'm reading a book about anti-gravity. It's impossible to put down.
