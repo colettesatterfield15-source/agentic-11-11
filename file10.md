@@ -1,0 +1,3 @@
+# Joke #10
+
+I only know 25 letters of the alphabet. I don't know y.

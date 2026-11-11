@@ -1,0 +1,3 @@
+# Joke #15
+
+Why did the golfer bring two pairs of pants? In case he got a hole in one.

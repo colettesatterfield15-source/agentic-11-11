@@ -1,0 +1,3 @@
+# Joke #2
+
+I told my wife she was drawing her eyebrows too high. She looked surprised.
